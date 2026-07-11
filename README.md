@@ -1,0 +1,1 @@
+# Fungsi-Keanggotaan-Variabel-Input-Kelembapan-Fuzzy-Logic
